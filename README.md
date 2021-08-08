@@ -1,0 +1,1 @@
+Why g value so high????
